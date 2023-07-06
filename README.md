@@ -1,1 +1,1 @@
-enjoying this this amazing program
+enjoying this amazing program
