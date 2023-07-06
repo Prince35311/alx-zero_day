@@ -1,1 +1,1 @@
-my first readme
+enjoying this this amazing program
